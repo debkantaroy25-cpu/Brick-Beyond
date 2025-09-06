@@ -1,2 +1,2 @@
 # Brick-Beyond
-At Brick &amp; Beyond Blog, we believe a home is more than a structure—it’s where life happens. And we’re here to guide you, inspire you, and walk with you as you build your own story, one brick at a time.
+Welcome to Brick & Beyond Blog—your go-to corner for everything real estate, where we keep it real, relatable, and inspiring. Real estate isn’t just about buying or selling a house; it’s about chasing dreams, building futures, and creating spaces that feel like home. That’s why we go beyond the bricks and walls to bring you stories, insights, and ideas that actually matter to your journey.
